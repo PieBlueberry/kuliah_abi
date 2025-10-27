@@ -1,2 +1,4 @@
 # kuliah_abi
-tugas kuliah
+I created this repo just for college assignment, nothing important here
+
+ADILI JOKOWIIII!!!!!
